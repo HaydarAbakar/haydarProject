@@ -1,0 +1,2 @@
+This one-page website presents a simple yet powerful message about hope. At its heart is a single paragraph that speaks about resilience, light in difficult times, and the belief that better days are always ahead. Centered on the page is one meaningful image that visually represents this message—calm, uplifting, 
+and inspiring. With its clean design and focused content, the website creates a quiet moment for reflection and encouragement.
